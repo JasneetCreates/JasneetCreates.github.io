@@ -6,7 +6,11 @@ I have completed my whole education from primary to senior secondary from **Sri 
 Currently I am studying at **Guru Nanak Dev Engineering College**,Ludhiana and Pursuing my course of Btech Electronics and Communication Engineering
 
 
+#YOU CAN CONTACT ME ON: 
+jasneetkaurr1@gmail.com
 
+
+#THANKS FOR YOUR PATIENCE 🙏
 
 
 
