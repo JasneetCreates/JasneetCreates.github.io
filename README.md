@@ -1,6 +1,8 @@
 # JasneetCreates.github.io
-I am. Jasneet kaur. 
+I am. Jasneet kaur.
+ 
 I have completed my whole education from primary to senior secondary from **Sri Guru Harkriahan Senior Secondary School**, Patti. 
+
 Currently I am studying at **Guru Nanak Dev Engineering College**,Ludhiana and Pursuing my course of Btech Electronics and Communication Engineering
 
 
