@@ -1,5 +1,5 @@
 # JasneetCreates.github.io
-I am. Jasneet kaur.
+I am Jasneet kaur.
  
 I have completed my whole education from primary to senior secondary from **Sri Guru Harkriahan Senior Secondary School**, Patti. 
 
